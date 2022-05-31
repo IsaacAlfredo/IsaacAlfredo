@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+ 🌱 I’m currently learning developing myself to get experience, so for now all my projects are personal projects that I creating with study purpose and grow up my portfolio.  
+ 💬 If you want to talk to me, use the contact you prefer in my bio.
+ 
+ Thanks for visiting me! 
+ 
+ ![](https://komarev.com/ghpvc/?username=IsaacAlfredo)
